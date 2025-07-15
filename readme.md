@@ -1,1 +1,1 @@
-https://nav.p.diele.me
+https://github.com/xjh22222228/nav
